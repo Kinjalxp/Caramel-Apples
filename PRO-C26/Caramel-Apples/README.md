@@ -1,0 +1,1 @@
+This recipe is called Caramel apple. As the name suggests, caramel is poured onto an apple to create this sweet and delicous treat. 
